@@ -1,1 +1,1 @@
-# https://valeryvoytovachool-cv/cv
+# https://valeryvoytova.github.io/rsschool-cv/cv
