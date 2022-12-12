@@ -1,1 +1,2 @@
-/текст CV/
+Voytova Valeria
+discord: ValeryVoytova
