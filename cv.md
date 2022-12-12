@@ -1,2 +1,0 @@
-Voytova Valeria
-discord: ValeryVoytova
